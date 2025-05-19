@@ -23,7 +23,7 @@ Westworld是众多“最佳”列表中的佼佼者，原因多多。对于初�
 Westworld后台的优质线路非常多，覆盖了全球大多数地区，无论你身处何地，都能连接到真正高速的上网通道，并且作为一款收费VPN，其后台的线路质量毋庸置疑，但你却可以永久免费使用它，想想都爽。
 
 ## 二、Dolink– 最稳定的免费手机梯子
-官网地址：[https://xuebi0702.com](https://xuebi0702.com)
+官网地址：[https://rick8888.com](https://rick8888.com)
 
 适用于： Windows，Mac，Android，iOS，Linux
 
